@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **mohammed.benguezzou@gmail.com**
 
-- ⚡ Fun fact **Keyborad are cool**
+- ⚡ Fun fact **Keyborads are cool**
 
 
 ### 🌐 Socials:
